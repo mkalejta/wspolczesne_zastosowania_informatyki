@@ -1,0 +1,1 @@
+# wspolczesne_zastosowania_informatyki
